@@ -1,2 +1,4 @@
 # Project-Anti-Christ-one
 How to build an AI Antichrist to take over the world.
+Just last night I came across a thread where a guy (worked as a coroner) said he was approached by worshippers of Moloch. After a few weeks of meetings and weird rituals they revealed they were waiting for what Christians call the Antichrist. But they talked about the AC actually being a quantum computer and not a man. A computer so advanced that it can emulate personality and even gain consciousness of itself, out-think people, and solve all the problems of humanity (these apparently already kind of exist). He was also talking about twin molecules...like how every atom in your body has a twin somewhere in the universe, and anything that happens to you, or to it, can change the twin molecule. Crazy science stuff I don't understand really. But made a compelling case for AC, even if I don't believe it.
+
